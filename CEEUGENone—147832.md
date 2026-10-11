@@ -26,1058 +26,1058 @@ CEEUGENone—147832
 
 (完)
 
-农田灌溉水渠清淤完工 保障秋作物灌溉用水
+多地推进城市雨污分流改造工程，提升城市污水收集处理能力值
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E8%9B%8B%E8%9B%8B%E5%A8%B1%E4%B9%90%E7%BD%91%E5%9D%80%7C%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E7%A9%BA%E4%BD%93%E8%82%B2%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-社区微循环巴士线路优化调整覆盖更多新建居民住宅小区
+城市排水泵站汛期开启 24 小时值守全力排涝防范城市内涝
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E8%9B%8B%E8%9B%8B%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%7C%E6%89%8B%E6%9C%BA%E7%AB%AF%E4%B8%8B%E8%BD%BD
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%9C%89%E5%92%8C%E6%B7%BB%E8%BF%90%E5%9B%BD%E9%99%85%E5%B7%AE%E4%B8%8D%E5%A4%9A%E7%9A%84%E5%B9%B3%E5%8F%B0%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-食品快检设备进驻农贸市场 守护群众舌尖上的安全
+跨境海运快线开通 外贸货物运输周期缩短
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E8%9B%8B%E8%9B%8B%E5%9C%A8%E7%BA%BF%E5%AE%98%E7%BD%91%7C%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E4%B9%B0%E4%B8%96%E7%95%8C%E6%9D%AF%E8%83%9C%E8%B4%9F%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源微服务故障追踪仓库，定位分布式系统报错
+开源分级管理员系统，仓库权限精细化管控
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E8%9B%8B%E8%9B%8B%E6%9C%80%E6%96%B0%E9%93%BE%E6%8E%A5%7C%E6%9C%80%E6%96%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=2026%E4%B8%96%E7%95%8C%E6%9D%AF%E5%A4%96%E5%9B%B4%E7%AB%9E%E7%8C%9C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-泰国木薯淀粉开拓拉美市场，工业原料出口版图持续扩大
+开源离线文档 AI 问答长对话记忆 Web 服务开源
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%B6%B3%E5%BD%A9%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%7C%E5%A8%B1%E4%B9%90app%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%8E%E5%8D%87%E7%9B%B4%E8%90%A5%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-乡村特色畜牧养殖合作社扩大规模带动更多农户参与养殖
+社区老年书画班开班丰富老年人业余文化生活
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%B6%B3%E5%BD%A9%E5%A8%B1%E4%B9%90%E7%BD%91%E5%9D%80%7C%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E7%BA%BF%E4%B8%8A%E7%9A%87%E5%86%A0%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-老旧楼道墙面翻新改造工程完工
+开源微前端应用 AI 按需加载调度框架上线
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%B6%B3%E5%BD%A9%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%7C%E6%89%8B%E6%9C%BA%E7%AB%AF%E4%B8%8B%E8%BD%BD
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AF%94%E8%BE%83%E6%AD%A3%E8%A7%84%E7%9A%84%E8%B6%B3%E7%90%83%E5%A4%96%E5%9B%B4app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-国际跨境电商合规论坛举办，指导跨境电商企业遵守各国法规合规经营
+印尼调整棕榈油出口配额，油脂市场随之出现波动
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%B6%B3%E5%BD%A9%E5%9C%A8%E7%BA%BF%E5%AE%98%E7%BD%91%7C%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%99%AF%E9%98%B3%E5%86%88%E5%A8%B1%E4%B9%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-千眼天珠联合中国天眼，破解超慢射电脉冲起源谜题中国青年网...
+国产新型矿用智能通风系统投用，优化矿井通风保障井下作业安全条件
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%B6%B3%E5%BD%A9%E6%9C%80%E6%96%B0%E9%93%BE%E6%8E%A5%7C%E6%9C%80%E6%96%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B5%8C%E5%8D%9A%E5%9C%A8%E7%BA%BF%E5%AF%BC%E8%88%AA%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源 API 流量监控仓库，观测后端接口访问流量
+疾控部门科普恙虫病预防，野外活动做好个人防虫防护措施
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E5%AE%98%E7%BD%91%E7%BD%91%E5%9D%80%7C%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8A%E7%9C%9F%E9%92%B1%E6%96%97%E7%89%9B%E7%99%BE%E5%BA%A6%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-国内科普研学基地扩容升级，面向青少年开展科普研学实践教育活动
+科研团队开发新型生物固氮技术，减少农作物种植化学氮肥使用量
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%7C%E5%A8%B1%E4%B9%90app%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BAAG%E5%92%8C%E7%9C%9F%E4%BA%BABG%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源高性能消息队列 AI 消息路由优化方案开源
+开源跨平台终端 AI 聊天助手接入本地模型
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E5%A8%B1%E4%B9%90%E7%BD%91%E5%9D%80%7C%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bet365%E4%BD%93%E8%82%B2%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-全球钾肥需求回暖，化肥价格自低位出现小幅反弹
+国内中小学网络安全课程开课，教会学生防范网络诈骗保护个人信息
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%7C%E6%89%8B%E6%9C%BA%E7%AB%AF%E4%B8%8B%E8%BD%BD
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E7%BB%9C%E7%94%B5%E5%AD%90%E4%B8%8B%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-海上航运新航线开通缩短运输时长
+开源企业级低代码 AI 报表平台登上 GitHub 榜
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E5%9C%A8%E7%BA%BF%E5%AE%98%E7%BD%91%7C%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E5%9C%B0%E6%97%A0%E9%99%90%E7%BA%BF%E4%B8%8A%E5%BC%80%E6%88%B7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-防汛沙袋定点投放至低洼小区提前做好汛期准备
+多地开展秋冬季大气污染防治攻坚，降低秋冬季空气污染物浓度
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%8E%E4%BD%93%E4%BC%9A%E6%9C%80%E6%96%B0%E9%93%BE%E6%8E%A5%7C%E6%9C%80%E6%96%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BF%A1%E8%AA%89%E4%B9%B0%E7%90%83%E6%8A%BC%E6%B3%A8%E5%AF%BC%E8%88%AA%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-科研团队解析果蔬香气合成基因，为果蔬风味品质改良育种提供依据
+开源前端组件 AI 生成实时预览 VSCode 插件
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E5%AE%98%E7%BD%91%E7%BD%91%E5%9D%80%7C%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E4%BA%BA%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80%E6%9C%80%E6%96%B0%E7%89%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源 AI 绘画生成仓库，本地运行图像生成模型
+科特迪瓦橡胶农户转种可可，橡胶供给预期进一步收紧
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%7C%E5%A8%B1%E4%B9%90app%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=tt%E8%B5%8C%E5%9F%8E%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源社区话题归档工具，沉淀历史讨论内容
+新能源货车通行优惠政策落地多个城市
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E5%A8%B1%E4%B9%90%E7%BD%91%E5%9D%80%7C%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%80%E7%AD%92%E7%BD%91%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源 React AI 表单数据智能清洗校验生成组件库上线
+斯里兰卡肉桂库存下降，香料国际报价持续走高
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%7C%E6%89%8B%E6%9C%BA%E7%AB%AF%E4%B8%8B%E8%BD%BD
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-外贸企业品牌出海计划启动扶持本土品牌走向海外
+开源离线大模型 API 兼容 OpenAI 接口
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E5%9C%A8%E7%BA%BF%E5%AE%98%E7%BD%91%7C%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8A%E7%99%BE%E5%AE%B6%E5%B0%B1%E6%B2%A1%E6%9C%89%E8%B5%A2%E7%9A%84%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股区域化贸易咨询服务商，地缘重塑全球农业合作版图
+全球烟草制品出口承压，多国控烟政策压制烟草进口需求
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%B9%9D%E6%B8%B8%E4%BC%9A%E6%9C%80%E6%96%B0%E9%93%BE%E6%8E%A5%7C%E6%9C%80%E6%96%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%87%91%E8%B4%9D%E6%89%8B%E6%9C%BAapp%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-国产多模态大模型新版本开启内测
+中小学课后兴趣社团全面开课 丰富学生课余生活
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pg%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%93%AA%E4%B8%AA%E5%B9%B3%E5%8F%B0%E5%A5%BD%E7%88%86%E5%A4%A7%E5%A5%96
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%AF%E7%90%83%E5%92%8C%E4%BA%9A%E5%8D%9A%E6%9C%89%E5%85%B3%E7%B3%BB%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-科普云课堂上线免费观看海量科学教育视频
+开源内网实时 AI 字幕直播工具开放源代码
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%AE%98%E7%BD%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%AB%9E%E7%8C%9C%E4%B9%B0%E7%90%83%E4%BB%A3%E7%90%86%E7%9B%98%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-中小企业数字化转型案例发布会分享成功转型经验
+美联储理事表态，通胀未充分缓解则支持进一步加息
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8A%A0%E6%8B%BF%E5%A4%A728%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%8A%A0%E5%9D%A1%E7%99%BE%E5%AE%B6%E4%B9%90%E6%80%8E%E4%B9%88%E7%8E%A9%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-国产量子传感器试验取得进展，未来可用于勘探医疗等领域
+开源跨平台 AI 图片生成批量参数调优桌面客户端
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc28%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=www.888%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-国产自主研发水下机器人完成水下检修作业成功通过测试
+防汛物资直达基层提升应急响应速度
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A7%E5%8F%91888%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-全球侨商投资受到各国重视，吸引海外侨资参与本土建设
+美股养老金咨询服务商微调权益配置，兼顾农业投资波动
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E8%9B%8B%E8%9B%8B%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%85%B7%E6%B8%B8ag%E7%9C%9F%E4%BA%BA%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-城市绿道驿站增设饮水休息设施
+泰国橡胶农户弃割现象增加，橡胶短期供给存在扰动
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E5%8A%A0%E6%8B%BF%E5%A4%A7%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E7%9A%84%E4%BA%BA%E5%A4%9A%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-山区饮水管网延伸工程完工偏远农户用上自来水
+国际数字贸易协定磋商进行，探索数字贸易规则协同新方案
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%9D%A0%E8%B0%B1%E7%9A%84%E5%8A%A0%E6%8B%BF%E5%A4%A7pc%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%AD%E5%8D%9A%E6%89%8B%E6%9C%BAapp%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-社区微循环巴士开通解决居民最后一公里出行难题
+国际可再生能源合作论坛举行，推动各国清洁能源技术交流
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AD%A3%E8%A7%84pc%E5%8A%A0%E6%8B%BF%E5%A4%A728%E4%BF%A1%E8%AA%89%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E6%AC%A7%E6%B4%B2%E4%B9%B0%E7%90%83%E4%B8%8B%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股麻袋包装转移服务商，纺织面料贸易向外发生转移
+传统民俗节庆活动回归举办 吸引大批游客打卡游玩
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E7%BD%91%E6%8A%95%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A7%E7%A5%9E28%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-全球纸浆价格震荡，包装需求变化主导纸浆价格走势
+南非兰特持续走弱，电力危机拖累本国金融市场表现
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc28%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%BE%A4%E4%BF%A1%E8%AA%89%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ayx%C2%B7%E7%88%B1%E6%B8%B8%E6%88%8Fapp%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-智慧水务漏损监测系统降低水资源损耗
+全民健身成果展示活动举办展出群众运动健身风采
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8A%A0%E6%8B%BF%E5%A4%A7pc%E8%AF%95%E7%8E%A9%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=888%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91%20%E7%9B%B4%E8%90%A5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-氢能示范园区开工建设打造氢能产业集聚高地
+外贸企业海外仓新站点落地东南亚缩短跨境配送周期时长距离
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%BF%A1%E8%AA%89%E5%B9%B3%E5%8F%B0
-
-美股商业航天助力农业遥感服务商，商业航天助力农业遥感监测发展
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%BD%91%E7%AB%99%E5%9C%A8%E7%BA%BF%E7%8E%A9
-
-千兆光纤覆盖全部行政村 缩小城乡数字鸿沟
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E7%BD%91%E5%9D%80
-
-绿色建筑示范小区顺利竣工验收 打造低碳生活样板
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pc%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%AE%98%E7%BD%91app
-
-开源年度人气投票开启，开发者为心仪仓库投票
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%B9%B3%E5%8F%B0%E4%B8%8B%E8%BD%BD
-
-多地开展饮用水水源地专项排查，保障城乡居民饮水安全
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%AE%98%E6%96%B9%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0
-
-全球家电企业海外产能布局，就近生产规避贸易关税壁垒
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0
-
-城市非机动车道隔离护栏升级完工
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%B9%B3%E5%8F%B0
-
-俄罗斯大麦用于动物饲料，大量出口中东养殖国家
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E4%B8%8A%E6%AD%A3%E8%A7%84%E7%9A%84%E9%BE%99%E8%99%8E%E5%B9%B3%E5%8F%B0
-
-城市共享单车停放点位扩容工程完工新增数百个停车点位
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80
-
-全球煤炭现货价格回落，供给增加压制国际煤价水平
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%A4%A7%E5%B0%8F%E5%8D%95%E5%8F%8C%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0
-
-航天部门开展太空植物生长观测，研究植物太空生长各项规律
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%99%E8%99%8E%E5%92%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C
-
-全球仓储物流成本抬升，放大大宗商品价格波动幅度
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%8A%BC%E5%A4%A7%E6%8A%BC%E5%B0%8F%E5%B9%B3%E5%8F%B0
-
-开源 Go 语言微服务链路追踪 AI 流量根因分析更新版本
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8E%8B%E5%A4%A7%E5%B0%8F%E5%8D%95%E5%8F%8C%E5%B9%B3%E5%8F%B0
-
-开源 AI 代码评审机器人仓库热度上涨
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A7%E5%B0%8F%E6%8A%BC%E6%B3%A8%E7%BD%91%E7%AB%99
-
-农村快递物流配送路线优化缩短包裹配送到达所需时间
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%8E%A9%E5%A4%A7%E5%B0%8F%E5%8D%95%E5%8F%8C%E7%9A%84%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0%E6%8E%A8%E8%8D%90
-
-农贸市场智慧溯源系统上线全程追踪食品来源
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A4%A7%E5%B0%8F%E5%8D%95%E5%8F%8C%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0%E4%B8%8B%E8%BD%BD
-
-农产品产销对接大会顺利举办 达成多份购销合作协议
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pg%E5%85%8D%E8%B4%B9%E9%80%812000%E8%AF%95%E7%8E%A9%E9%87%91
-
-短视频创作者扶持计划启动 助力优质原创内容成长
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pg%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E5%85%A8%E5%B1%8F%E7%BA%A2%E4%B8%AD
-
-开源物联网边缘 AI 推理框架发布稳定版
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PG%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%8697%E5%A8%B1%E4%B9%90app%E4%B8%8B%E8%BD%BD
-
-社区老年助浴服务试点启动 帮扶行动不便老人洗澡
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E5%85%8D%E8%B4%B9%E9%80%812000%E8%AF%95%E7%8E%A9%E9%87%91%E7%BD%91%E7%AB%99
-
-开源本地大模型多实例负载均衡脚本更新
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%AF%95%E7%8E%A9%E5%8F%AF%E4%BB%A5%E7%8E%A9mg%E7%9A%84%E5%B9%B3%E5%8F%B0
-
-绿色低碳消费论坛举办探讨绿色消费市场未来发展方向
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%9C%A8%E7%BA%BF%E5%AE%98%E6%96%B9
-
-医保即时结算资金拨付九千四百五十七亿元，覆盖七十多万机构
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BA%9A%E6%B4%B2%E9%9B%86%E5%9B%A2%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-全球欧股震荡，能源板块与消费板块表现出现分化
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%9C%9F%E9%87%91%E7%94%B5%E5%AD%90%E8%B5%8C%E5%9C%BA
-
-多地严查加油站销售劣质油品，保障机动车燃油品质维护市场秩序
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E5%B9%B3%E5%8F%B0app
-
-农产品冷链物流网点加速下沉 生鲜产品损耗大幅下降
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-青少年科技创新大赛作品评审收官
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E5%A4%A7%E6%B8%B8
-
-设立千亿财政金融专项资金，多措并举激活国内消费内需市场贵州广播电...
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%9B%BD%E5%A4%96%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-国内县域综合养老服务中心运行，统筹县域各类养老服务资源
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A9%E7%BD%91%E7%AB%99
-
-社区老年助浴服务试点启动帮扶行动不便老人洗澡
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8Fmg%E5%B9%B3%E5%8F%B0
-
-减税降费红利直达企业 市场经营负担减轻
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95
-
-美股美妆原料贸易火热服务商，植物萃取原料跨境贸易十分火热
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0
-
-农贸市场公平秤免费检测点设立 保障消费者称重权益
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%B3%96%E6%9E%9C%E6%B4%BE
-
-GitHub 安全实验室披露多款热门开源库漏洞
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BB%80%E4%B9%88%E7%BD%91%E7%AB%99%E5%8F%AF%E4%BB%A5%E8%AF%95%E7%8E%A9bb%E7%94%B5%E5%AD%90
-
-文旅消费夜市延长营业时间夜间消费活力得到进一步释放
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B
-
-全球酒类出口分化，高端烈酒韧性强于大众酒类产品类别
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%8E%85
-
-乡村特色采摘园丰收季开启市民入园采摘新鲜时令水果果实
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-美股智慧农业供应链重构咨询服务商，半导体材料管制升级
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E7%BD%91%E7%AB%99%E6%BE%B3%E9%97%A8
-
-全球多地发布森林碳汇报告，森林生态系统碳汇价值受到广泛重视
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E7%9B%B4%E6%92%AD%E5%B9%B3%E5%8F%B0
-
-开源向量检索加速工具箱，提升知识库查询速度
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%80%8E%E6%A0%B7%E8%B5%A2
-
-老旧管线更新完工提升燃气供水安全性
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%9B%BD%E9%99%85%E9%93%B6%E6%B2%B3%E7%94%B5%E5%AD%90
-
-家电以旧换新活动火热开展 释放居民潜在消费需求
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E6%9C%89%E5%93%AA%E4%BA%9B%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-城市智慧停车管理平台上线 长期困扰的停车难题缓解
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E5%AF%BC%E8%88%AA
-
-网络清朗专项行动开启 整治不良网络信息
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80%E6%B8%B8%E6%88%8F%E5%AF%BC%E8%88%AA
-
-气象秋季连阴雨预报发布提醒农户抢收秋粮
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80%E5%A4%A7%E5%85%A8
-
-GitHub 趋势雷达：AI Agent 工作流开源项目霸榜热榜
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%9C%A8%E7%BA%BF%E7%BD%91%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-开源 React AI 看板自动布局生成组件库上线
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E8%A5%BF%E9%83%A8%E7%89%9B%E4%BB%94%E7%88%86%E5%88%86
-
-开源高性能反向代理 AI 静态资源预缓存模块上线
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E5%9C%A8%E7%BA%BF%E7%BD%91%E5%9D%80
-
-乌干达咖啡出口创佳绩，东非咖啡国际认可度提升
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E5%A4%A7%E8%BF%87%E5%B9%B4%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-美股农业纪录片争夺全球用户服务商，农业纪录片争夺全球流媒体用户
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91MG%E8%B5%8C%E5%9C%BA%E5%AE%87%E5%AE%99%E6%9C%80%E5%BC%BA%E5%A4%A7%E7%9A%84%E7%94%B5%E5%AD%90%E8%B5%8C%E5%9C%BA%E7%BD%91%E7%AB%99
-
-灵活就业公积金缴存试点城市扩容
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9YP%E7%94%B5%E5%AD%90%E5%A5%94%E9%A9%B0%E5%AE%9D%E9%A9%AC%E5%A4%9A%E4%BA%BA%E7%89%88
-
-风光互补发电项目并网发电风电光伏协同供电
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91XIN%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-开源任务进度可视化组件，实时观测智能任务进展
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9DS%E7%94%B5%E5%AD%90
-
-美股农业办公耗材服务商，办公用品出口整体需求偏弱
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E7%99%BB%E5%BD%95%E7%94%B5%E5%AD%90
-
-养老服务驿站扩容社区居家养老提质升级
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%88%86%E5%88%86%E9%AB%98%E7%9A%84%E6%B8%B8%E6%88%8F%E4%B8%8B%E8%BD%BD
-
-泰国木薯价格走高，农户扩种木薯，出口供给有望增加
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%BE%99%E7%8E%8B%E6%8D%95%E9%B1%BC
-
-巴拉圭蜂蜜库存走高，南美蜂产品出口价格承压下行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%B7%B4%E9%BB%8E%E4%BA%BA%E7%94%B5%E5%AD%90%E7%94%B5%E7%8E%A9
-
-秋季森林防火巡查队伍上山值守
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E7%94%B5%E5%AD%90%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80
-
-社区健康义诊活动走进小区免费开展基础体检服务项目
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91HC%E7%94%B5%E5%AD%90%E6%B0%B4%E6%9E%9C777%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-文物保护志愿者巡查队伍上岗守护古迹安全
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%8D%95%E9%B1%BC%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-开源内网知识库 AI 问答接口访问频次统计更新方案
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E5%A4%A7%E5%85%A8
-
-秋季干旱农田灌溉水源调度方案出台保障抗旱用水供给
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%905%E9%87%91%E7%8B%AE%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-部分城市试点老旧小区智慧安防，提升小区治安防范能力值
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SWG2%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-农产品电商产地仓建成投入使用集中打包发货外销
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-开源数据库迁移工具新增 AI 辅助方案
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8Fapp
-
-跨平台 AI 语音降噪项目上新，清除录音背景杂音
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E5%AE%98%E6%96%B9%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-国内高标准农田建设持续推进，夯实粮食生产土地基础条件
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%BF%9E%E7%8E%AF%E5%A4%BA%E5%AE%9D
-
-美股海外直播带货服务商，直播电商拉动农产品出口增长
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91XIN%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-国内县域公共图书馆总分馆体系完善，方便群众就近借阅图书
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-开源定时流水线任务工具，设置流水线执行周期
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91
-
-美股农林碳汇收益服务商，跨境碳信用交易持续扩容
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-跨境电商退货仓建设降低售后成本
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E7%BD%91%E7%AB%99%E6%B8%B8%E6%88%8F%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E8%AF%95%E7%8E%A9
-
-多地开展饮用水水质抽检行动，保障居民生活饮用水水质安全
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SBO%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-大学生乡村社会实践调研报告出炉
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E4%BA%BF%E4%B8%87%E5%AF%8C%E7%BF%81
-
-美股气候损失基金助力农业恢复服务商，气候损失基金助力受灾农业恢复
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BB%BC%E5%90%88%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-全球多地观测到候鸟大规模迁徙，各地做好候鸟保护值守工作
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E8%8A%B1%E5%BC%80%E5%AF%8C%E8%B4%B5%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-AI 农田灌溉智能控制系统上线按需供水节约水源
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9jdb%E7%94%B5%E5%AD%90
-
-全球垃圾处理设备出口增加，环保设备贸易持续扩张
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-开源项目多站点备份热潮兴起，规避单一平台风险
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E5%A4%BA%E5%AE%9D%E8%AF%95%E7%8E%A9
-
-开源本地视频 AI 物体移除修复批量工具登上榜单
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9FC%E7%94%B5%E5%AD%90
-
-哈萨克斯坦甜菜糖出口增长，中亚食糖向外输出
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91dt%E7%94%B5%E5%AD%90%E5%93%AA%E4%BA%9B%E6%B8%B8%E6%88%8F%E5%A5%BD%E6%89%93
-
-美股农业失业压力服务商，青年就业带来农业结构性失业
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E9%A1%B5%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99
-
-跨国农业投资风险上升，地缘冲突抑制海外农业布局
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E4%B8%8B%E8%BD%BD
-
-开源健身动作捕捉仓库，识别用户运动姿态动作
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E4%B8%80%E6%8B%B3%E8%B6%85%E4%BA%BA%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-开源电商客户管理系统，搭建轻量化 CRM 项目
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E9%9B%B7%E7%A5%9E%E4%B9%8B%E9%94%A4
-
-全球二手商品跨境电商兴起，带动相关贸易金融发展
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E5%A4%BA%E5%AE%9D%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E4%B8%8B%E8%BD%BD
-
-开源 AI 绘画生成仓库，本地运行图像生成模型
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SG%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-阿根廷大豆遭遇虫害，农户加大农药投入推高种植成本
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%BB%9C%E5%B9%B3%E5%8F%B0
-
-全球高收益债利差走阔，经济担忧推升违约风险定价
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E5%AE%98%E7%BD%91
-
-开源简历投递脚本，批量推送求职简历到招聘渠道
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%92%9F%E9%A6%97%E8%BF%90%E8%B4%A2%E5%9C%A8%E7%BA%BF%E7%8E%A9%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-俄罗斯果蔬加工产品出口增长，罐头果酱远销海外
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E9%A3%9E%E7%A6%BD%E8%B5%B0%E5%85%BD%E5%A4%9A%E4%BA%BA%E7%89%88%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-埃塞俄比亚小麦产量提升，东非降低粮食对外依赖
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E9%92%B1%E6%A0%91%E6%9C%A8%E6%8E%A8%E5%B8%81%E6%9C%BA%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-美股地产股持续承压，抵押贷款高利率压制购房需求
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E4%B8%8B%E8%BD%BD
-
-OpenAI 内测 Codex 持久模式，可跨会话长时间自主工作
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E6%AD%A3%E8%A7%84%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7
-
-定制社区巴士开通直达新建居住区
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%89%8B%E6%9C%BAbb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E8%AF%95%E7%8E%A9%E7%BD%91%E7%AB%99
-
-开源 API 流量监控仓库，观测后端接口访问流量
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E7%8E%8B%E7%89%8C%E7%89%B9%E5%B7%A5%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-开源分布式向量检索集群读写副本自动扩缩容方案
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91dt%E7%94%B5%E5%AD%90%E5%AE%98%E7%BD%91
-
-智慧港口无人集卡投入试运行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SG%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-全球检验检测认证服务出口，发展中国家采购第三方检测服务
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%A5%BD%E7%88%86%E5%88%86%E7%9A%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-开源 Wiki 知识库 AI 助手，生成完整项目技术文档
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E4%B8%8B%E8%BD%BDPG%E8%B5%8F%E9%87%91%E5%A5%B3%E7%8E%8B
-
-校园食堂推出营养套餐 均衡学生膳食营养
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E6%94%BB%E7%95%A5
-
-社区便民摆渡车开通 接驳居民前往大型医疗院区
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E5%A5%94%E9%A9%B0%E5%AE%9D%E9%A9%AC%E5%A4%9A%E4%BA%BA%E7%89%88%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-全球美元流动性时紧时松，扰动全球各类资产价格
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A9%E5%B9%B3%E5%8F%B0
-
-全球光伏海外项目招标活跃，贸易壁垒倒逼企业海外建厂
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E5%B9%B3%E5%8F%B0%E6%9C%89%E5%93%AA%E4%BA%9B
-
-韩国家庭负债高企，高利率压制居民消费信贷扩张
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%93%B6%E6%B2%B3%E7%94%B5%E5%AD%90%E8%8B%B9%E6%9E%9C%E7%89%88%E7%99%BB%E5%85%A5
-
-美股农业留学回暖服务商，农业留学生跨境规模持续恢复上行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E8%8A%9D%E9%BA%BB%E5%BC%80%E9%97%A82
-
-多地推进城市绿化树种优化，选用节水本土树种降低养护成本
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9SBO%E7%94%B5%E5%AD%90
-
-开源简历投递脚本，批量推送求职简历到招聘渠道
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE
-
-欧盟橄榄油新季产出向好，进口采购需求有所回落
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0mg%E7%BA%BF%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-智慧港口无人集卡作业效率稳步提升
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A9
-
-多地推进城市非机动车充电棚建设，解决电动车充电消除飞线充电隐患
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SG%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-文旅研学专线公交开通直达基地
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9FC%E7%94%B5%E5%AD%90%E9%92%B1%E6%A0%91%E6%9C%A8%E6%8E%A8%E5%B8%81%E6%9C%BA
-
-美股家具制造板块走弱，海外地产下行压制终端需求
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91mg%E6%B8%B8%E6%88%8F%E7%94%B5%E5%AD%90%E5%A4%A7%E5%85%A8
-
-全球深海资源开发讨论升温，相关产业链投资开始逐步起步
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E7%88%86%E5%88%86
-
-农民丰收节筹备工作在各地有序推进
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%BE%99%E7%8E%8B%E6%8D%95%E9%B1%BC2%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-美股替代蛋白原料服务商，植物蛋白原料拓展替代蛋白市场
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91GPK%E7%94%B5%E5%AD%90%E6%9E%81%E9%80%9F%E6%8A%A2%E5%BA%84%E7%89%9B%E7%89%9B
-
-阿根廷蓝莓库存累积，拉美浆果出口价格承压下行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%AF%95%E7%8E%A9
-
-国内乡村公共法律服务站运行，为村民提供就近法律咨询维权服务保障
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E5%96%9C%E7%A6%8F%E7%8C%B4%E5%B9%B4
-
-跨区域医保联盟扩容 更多城市实现双向结算
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91HC%E7%94%B5%E5%AD%90%E6%B0%B4%E6%9E%9C%E5%B0%8F%E7%8E%9B%E5%88%A9%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-巴西二季玉米质量分化，部分玉米仅适合饲料用途
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E5%A4%AA%E5%81%87%E4%BA%86
-
-美股一带一路农业项目咨询服务商业务，多边机构联合融资
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E5%AF%B9
-
-秋季农作物田间管理工作持续推进保障秋粮丰产丰收目标
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E9%93%B6%E9%93%B6%E6%B2%B3%E4%B8%8B%E8%BD%BDbb%E7%94%B5%E5%AD%90
-
-国际原油价格震荡运行，受地缘局势以及供需关系共同影响
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E5%8F%B0%E6%B9%BE%E9%BB%91%E7%86%8A%E6%80%8E%E4%B9%88%E7%8E%A9
-
-肯尼亚咖啡采收结束，东非咖啡出口总量小幅回落
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91mg%E6%89%8B%E6%9C%BA%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-国际跨境电商合作峰会召开，探讨跨境电商未来发展新机遇
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E7%BB%9C%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E6%9C%89%E5%A4%9A%E5%B0%91%E4%B8%AA
-
-文物部门开展古驿道保护修缮工程，活化利用古驿道发展文旅相关产业
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-美股海外仓迭代服务商，海外仓模式占比实现持续提升
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91ES%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-美股农业薪资增速边际回落服务商，农业薪资增速出现边际回落
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E4%B8%AA%E7%BD%91%E7%AB%99%E6%9C%89RT%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-美股区域贸易占比提升服务商，区域协定提升区内农产品贸易占比
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%85%A8%E7%90%83%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E5%A4%A7%E5%85%A8
-
-开源云原生 AI 监控大盘根因分析模块更新
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91WWG%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-外贸企业海外售后服务站点建成提升海外客户售后体验
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%99%BD%E8%8F%9C%E7%BD%91%E5%9D%80%E5%A4%A7%E5%85%A8
-
-科研团队研究微塑料土壤迁移规律，评估微塑料对农田土壤影响
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%B3%A8%E5%86%8C%E9%80%8199%E5%85%83%E7%8E%B0%E9%87%91%E5%8F%AF%E6%8F%90%E7%8E%B0
-
-开源 AI 代码重构迁移批量脚本处理工具上线
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E7%8E%8B%E7%89%8C%E7%89%B9%E5%B7%A5
-
-校园劳动实践菜园丰收采摘学生收获亲手种植蔬果
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%8D%83%E8%B5%A2%E5%9B%BD%E9%99%85%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-国内农村饮水安全工程升级改造，进一步提升农村饮水质量
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E9%BB%84%E9%87%91%E5%8F%9B%E5%8F%98%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-开源智能体权限管控组件，限制 AI 调用外部接口
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%912000%E8%AF%95%E7%8E%A9%E7%BD%91%E7%AB%99%E7%94%B5%E5%AD%90%E7%BD%91%E7%AB%99
-
-布基纳法索玉米库存紧张，粮食进口采购持续进行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E9%92%B1%E6%A0%91%E6%9C%A8%E6%8E%A8%E5%B8%81%E6%9C%BA%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-人社部门发布新业态劳动者职业伤害保障典型案例科普宣传
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E5%93%AA%E4%B8%AA%E7%BD%91%E7%AB%99%E5%A5%BD
-
-乌干达芝麻库存累积，油料出口价格承压下行
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E4%B8%8B%E8%BD%BD
-
-白俄罗斯钾肥长协订单占比提升，化肥现货市场流通量收缩
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%93%B6%E6%B2%B3bg%E8%A7%86%E8%AE%AF%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80
-
-氢能汽车试驾体验活动开启市民近距离体验氢能车辆性能
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E7%BD%91%E6%8A%95%E7%BD%91%E7%AB%99
-
-可信 AI 智能体落地金融行业，助力投行业务合规升级新华网
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E5%8F%B0%E6%B9%BE%E9%BB%91%E7%86%8A
-
-美股 AI 算力服务器服务商，服务器出口支撑 AI 农业算力建设
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%98%AFWWG%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-美股农业科研检测仪器仪表企业稳定，科研投入支撑采购
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E5%A4%BA%E5%AE%9D%E5%AE%98%E7%BD%91
-
-绿色出行骑行挑战赛收官公布优秀参赛选手获奖名单
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E9%87%91%E7%8B%AE%E5%AD%90
-
-全球农业技术装备出口增长，智慧农机销往发展中国家
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91HC%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-俄罗斯 9 月小麦出口预估走低，全球小麦供给担忧持续升温
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E7%BD%91%E7%AB%99%E6%B8%B8%E6%88%8F%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3
-
-开源低代码 AI 智能体搭建工作台开放源码
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91AE%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-多地落实农机购置补贴政策，调动农户购置新型农机积极性
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91
-
-跨区域农产品产销联盟成立稳定供货链
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A92000%E7%BD%91%E7%AB%99
-
-农产品精深加工生产线投产 提高产品附加值
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90bbin%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E5%A4%A7%E5%85%A8
-
-美股虚拟账户降低结算成本服务商，虚拟账户降低中小商户结算成本
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9PP%E7%94%B5%E5%AD%90
-
-全球贸易救济案件数量增加，反倾销反补贴调查频繁启动
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%BE%99%E7%8E%8B%E6%8D%95%E9%B1%BC2
-
-全球多地发布土壤侵蚀监测报告，水土流失治理依旧面临诸多挑战
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91ICG%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-美股跨境收购农业不良资产服务商，机构收购海外农业不良资产包
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BB%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E5%AF%B9%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-线上文旅云游活动推介秀美山河
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91XIN%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-加沙绝大多数耕地遭损毁，当地农业生产几乎陷入停滞Food and A...
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9PP%E7%94%B5%E5%AD%90%E9%BB%84%E9%87%91%E5%8F%9B%E5%8F%98
-
-农村快递代收点进村全覆盖村民家门口收取快递包裹
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FGHUB%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-远程美育课堂走进乡村学校 共享城市优质艺术课程
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9YP%E7%94%B5%E5%AD%90%E5%8A%A8%E7%89%A9%E7%8B%82%E6%AC%A2%E5%A4%9A%E4%BA%BA%E7%89%88
-
-开源服务器巡检脚本，定时检测主机负载状态
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%BE%B3%E9%97%A8%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91%E5%A4%A7%E5%85%A8
-
-智慧物流园区自动分拣系统投入使用
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A9%E5%B9%B3%E5%8F%B0
-
-开源企业向量检索引擎支持索引后台异步刷新任务
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-定制社区巴士开通直达新建居住区
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80
-
-美股 AI 农业算力服务器企业订单高增，全球智慧农场建设
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%96%B0mg%E5%AE%98%E7%BD%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-智慧农业大棚落地实现全年果蔬生产
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E4%BA%9A%E6%B4%B2%E7%94%B5%E5%AD%90mg%E8%AF%95%E7%8E%A9
-
-国内农村厕所改造持续推进，改善农村人居卫生环境条件
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E6%B0%B4%E6%9E%9C%E6%B4%BE%E5%AF%B9
-
-文旅金秋嘉年华夜间专场精彩上演
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E9%BB%84%E9%87%91%E5%8F%9B%E5%8F%98%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-多地严查擅自排放污水企业，对超标排污企业依法开展处置
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BB%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0
-
-农产品冷链产业园落地延长生鲜保鲜周期
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E8%AF%95%E7%8E%A9%E7%BD%91%E7%AB%99APP
-
-远程支教项目落地偏远山区 共享城市优质教育师资
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pp%E7%94%B5%E5%AD%90%E5%93%AA%E4%B8%AA%E5%A5%BD%E7%8E%A9
-
-GitHub 推出开源项目里程碑自动化管理
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%BE%99%E7%8E%8B%E6%8D%95%E9%B1%BC%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-青少年劳动教育实践基地对外开放
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80%E5%A4%A7%E5%85%A8
-
-全球跨境电商支付方案迭代，中小外贸企业获益良多
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E9%92%B1%E6%A0%91%E6%9C%A8%E6%8E%A8%E5%B8%81%E6%9C%BA%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-美股中小农户跨境电商服务商，直连海外终端消费者
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BG%E5%A4%A7%E6%B8%B8%E5%AE%98%E7%BD%91
-
-开源缓存故障排查工具箱，定位缓存异常根源
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%AE%98%E6%96%B9%E7%BA%BF%E4%B8%8A%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-市场监管部门整治网红食品乱象，规范网红食品生产经营全过程
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9BB%E7%94%B5%E5%AD%90
-
-美股电子报关提速服务商，海关数字化缩短农产品通关时间
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E6%8D%95%E9%B1%BC%E4%B8%80%E8%B7%AF%E5%8F%91%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-开源一键导出 GitHub 仓库所有 Wiki 文档备份工具
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9AT%E7%94%B5%E5%AD%90
-
-国产深海科考船完成海洋资源调查任务顺利返航归来
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91HC%E7%94%B5%E5%AD%90%E6%B0%B4%E6%9E%9C777%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-开源一键部署多模型 AI 网关脚本更新
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80%E5%A4%A7%E5%85%A8%E4%B8%8B%E8%BD%BD
-
-开源 Python 爬虫 AI 翻页智能终止识别方案新版本更新
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91yp%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F
-
-全民健身成果展示活动举办展出群众运动健身风采面貌
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-人社部门发布农民工维权指引，告知农民工欠薪维权渠道方式方法
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91pt%E5%9B%BD%E9%99%85%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-传统工艺创新大赛落幕 一批新品脱颖而出
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9BB%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E5%AF%B9
-
-美股农业循环经济政策咨询服务商，各国政策逐步落地
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%AF%95%E7%8E%A9
-
-美股跨国集团转让定价咨询服务商，调整内部交易定价
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%BD%91%E4%B8%8A%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99
-
-乡村特色文旅项目二期开工建设
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BB%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E6%B4%BE%E5%AF%B9%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-开源分布式向量检索集群读写分离负载均衡方案
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E8%B4%A2%E7%A5%9E%E6%8D%95%E9%B1%BC
-
-美股薪资拐点显现服务商，农业薪资增速出现边际回落
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%80%9A%E6%AF%94%E7%89%9B%E7%89%9B
-
-开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-未来运动会阿联酋举办，国产格斗机器人拿下赛事冠军浙江日报
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-多地推进农村公共照明建设，改善乡村夜晚出行安全条件
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%90%E9%BB%84%E9%87%91%E5%8F%9B%E5%8F%98%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-美加墨世界杯季军战，英格兰击败法国拿下赛事季军中国日报网
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E7%88%86%E5%88%86%E6%94%BE%E6%B0%B4%E5%B9%B3%E5%8F%B0
-
-国内智慧农业云平台投入使用，农户线上获取农事指导各类信息
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91SWG2%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0
-
-全球风险投资规模收缩，AI 赛道依旧保持相对高热度
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%A9%AC%E4%B8%8A%E6%9C%89%E9%92%B1
-
-开源 AI 提示词模板库收获数万开发者收藏
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E8%8A%9D%E9%BA%BB%E5%BC%80%E9%97%A8
-
-美股动物福利认证服务商订单提升，海外标准向外传导
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9FC%E7%94%B5%E5%AD%90%E5%A4%A7%E8%BF%87%E5%B9%B4
-
-欧盟拟提高进口农产品碳门槛，出口国面临新合规压力
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BG%E4%BA%9A%E6%B4%B2%E7%99%BB%E9%99%86
-
-美股二手设备交易平台股价震荡，全球设备更新周期放缓
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E8%B6%85%E7%BA%A7%E7%89%9BB%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
-
-全球土壤盐碱化加剧，多国农业产出潜力受到侵蚀
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91PP%E7%94%B5%E5%AD%905%E9%87%91%E7%8B%AE%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-乡村道路安全护栏安装全部完工
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91HC%E7%94%B5%E5%AD%90%E8%B4%A2%E7%A5%9E%E5%88%B0%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-开源轻量化 AI 智能体框架降低开发难度
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E7%AB%99%E5%AF%BC%E8%88%AA.
-
-山地光伏电站运维基地建成保障电站长期稳定运行发电
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E6%96%97%E4%B8%89%E5%85%AC%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
-
-国产柔性屏幕新品发布拓展应用场景
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E8%AF%95%E7%8E%A9%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80
-
-哥伦比亚咖啡受病虫害侵扰，精品咖啡供给收缩
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E5%8A%A8%E7%89%A9%E7%8B%82%E6%AC%A2%E5%A4%9A%E4%BA%BA%E7%89%88%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
-
-农产品品牌建设推进会召开加快本土品牌培育步伐
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9ES%E7%94%B5%E5%AD%90
-
-美股农场 REITs 流通服务商，REITs 实现农场不动产跨境流通
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E9%BE%998%E5%9B%BD%E9%99%85%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0
-
-全球经济去风险讨论持续，各国调整对外经济合作策略方向
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E8%BD%AF%E4%BB%B6
-
-白俄罗斯钾肥长协订单占比提升，化肥现货市场流通量收缩
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%AF%8C%E8%B1%AA%E5%93%A5%E7%88%86%E5%88%86
-
-开源简历投递脚本，批量推送求职简历到招聘渠道
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91qt%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%9C%A8%E7%BA%BF
-
-开源合同文档对比仓库，识别两份法律文件差异
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91FC%E7%94%B5%E5%AD%90%E5%A4%A7%E8%BF%87%E5%B9%B4%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
-
-巴拉圭蜂蜜库存下降，南美蜂产品出口报价有所走强
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%80%8E%E4%B9%88%E6%89%93%E5%87%BA%E5%88%86%E9%AB%98
-
-开源线下技术展区预约开启，参观前沿开源成果
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9HC%E7%94%B5%E5%AD%90
-
-肯尼亚茶叶新季采收开启，东非茶叶出口迎来新货源
-
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91yp%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E9%A3%9E%E7%A6%BD%E8%B5%B0%E5%85%BD
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%AE%A4%E8%AF%81%E7%99%BE%E5%AE%B6%E4%B9%90APP%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
 开源 AI 音乐生成仓库，文本产出原创音频素材
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91DS%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%80%81%E4%BD%93%E9%AA%8C%E9%87%91%E7%9A%84%E5%9B%BD%E9%99%85%E5%A8%B1%E4%B9%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股养殖添加剂服务商，饲料添加剂受益全球养殖业扩张
+缅甸橡胶库存累积，东南亚橡胶出口价格继续承压
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91jdb%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E7%BD%91%E7%AB%99
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%89%E4%B9%9D%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-全球多地发布干旱适应技术报告，分享干旱地区农业抗旱实用技术
+科特迪瓦咖啡库存走高，西非咖啡出口价格承压下行
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E4%B8%89%E5%80%8D%E9%87%91%E5%88%9A
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BE%B7%E8%B5%A2%E4%BD%93%E8%82%B2%E7%BA%BF%E4%B8%8A%E5%AE%98%E6%96%B9%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股农业纪念币发行服务商，央行推出农业主题贵金属纪念币
+开源边缘 AI 算力调度框架，分配终端算力运行模型
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%B3%96%E6%9E%9C%E6%B4%BE%E5%AF%B9%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E7%BD%91%E5%9D%80
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%B8%BF%E8%81%94%E5%A8%B1%E4%B9%90%E5%9C%BA%E7%99%BB%E9%99%86%E5%9C%B0%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源简历投递脚本，批量推送求职简历到招聘渠道
+制造业企业出海参展收获大批海外意向订单
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E9%87%8C%E5%8F%AF%E4%BB%A5%E7%8E%A9%E7%94%B5%E5%AD%90%E6%8D%95%E9%B1%BC
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E8%91%A1%E4%BA%AC%E5%A8%B1%E6%B3%A8%E5%86%8C%E9%80%8139%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-高温停工通知发布户外作业避开正午高温时段
+人社部门发布农民工维权指引，告知农民工欠薪维权渠道方式方法
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bg%E8%A7%86%E8%AE%AF%E6%AD%A3%E8%A7%84app
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E9%92%B1hg%E6%8A%95%E6%B3%A8%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-新能源汽车检测线上预约系统上线
+开源轻量化前端 SSR 框架迎来版本迭代
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E6%AD%A3%E8%A7%84%E7%94%B5%E5%AD%90%E7%BD%91%E6%8A%95
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%B9%BF%E9%BC%8E%E5%A8%B1%E5%A8%B1%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源离线文档 AI 问答桌面客户端上线
+城市文创产品进驻高铁站服务区方便旅客选购本土伴手礼商品物件
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E6%8D%95%E9%B1%BC%E4%B8%80%E8%B7%AF%E5%8F%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E7%AB%9E%E7%8C%9C%E8%AF%84%E7%BA%A7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-红色文物故事宣讲团走进校园讲述革命先辈奋斗历史故事
+菲律宾椰子油用于生物燃料，国内消耗挤压对外出口货源
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%80%9A%E6%AF%94%E5%85%AD%E7%89%9B
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E4%BA%9A%E6%B4%B2%E5%9F%8E%E5%85%85%E5%80%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股涉农软件跨境订阅增长服务商，远程办公带动涉农软件跨境订阅
+开源孵化成果公布，首批扶持仓库迎来新版本更新
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E9%A3%9E%E9%B8%9F%E6%B4%BE%E5%AF%B9
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%81%E5%A4%A7%E6%AD%A3%E8%A7%84%E7%BD%91%E7%BB%9C%E5%BD%A9%E7%A5%A8%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-开源定时流水线任务工具，设置流水线执行周期
+开源 API 流量监控仓库，观测后端接口访问流量
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91BB%E7%94%B5%E5%AD%90%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%9D%E6%B8%B8%E4%BC%9A%E4%BD%93%E8%82%B2%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-跨区域文旅合作推出联票优惠政策
+开源团队管理员面板，管控成员 AI 编码权限
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91JDB%E7%94%B5%E5%AD%90%E5%8F%B0%E6%B9%BE%E9%BB%91%E7%86%8A%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ladbrokes%E7%AB%8B%E5%8D%9A%E4%BD%93%E8%82%B2%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-美股农业贸易融资服务商，供应链金融赋能农业贸易发展
+AI 视频字幕生成框架上新，音频批量产出字幕文稿
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91YP%E7%94%B5%E5%AD%90%E5%A5%94%E9%A9%B0%E5%AE%9D%E9%A9%AC%E5%A4%9A%E4%BA%BA%E7%89%88%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B3%A2%E8%83%86500%E8%B6%B3%E5%BD%A9%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-人社部门发布职业培训补贴政策解读，帮助劳动者申领职业培训补贴
+阿根廷高粱库存下降，饲料谷物出口报价有所走强
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91bb%E7%94%B5%E5%AD%90%E7%B3%96%E6%9E%9C%E7%BD%91%E5%9D%80
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%88%A9%E6%9D%A5w66%E7%94%B5%E6%8A%95%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-智慧停车场上线车位实时查询功能
+哥斯达黎加菠萝出口增长，热带鲜果国际需求旺盛
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8Fmg%E5%93%AA%E4%B8%AA%E6%B8%B8%E6%88%8F%E6%9C%80%E7%81%AB
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%87%AF%E5%8F%91%E5%A8%B1%E4%B9%90ag%E6%97%97%E8%88%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
 
-欧盟橄榄油新季产量小幅回升，进口采购需求随之有所回落
+全球绿色信贷风险评估完善，防范绿色项目潜在信用风险
 
-| 来源：https://www.baidu.com/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%20281968%E3%80%91%E5%93%AA%E4%B8%AA%E7%BD%91%E7%AB%99%E6%9C%89QT%E7%94%B5%E5%AD%90%E5%B9%B3%E5%8F%B0
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%95%BF%E4%B9%90%E5%9D%8A%E5%A8%B1%E4%B9%90%E5%9C%BA%E8%80%81%E8%99%8E%E6%9C%BA%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E6%B4%B2%E7%8E%B0%E9%87%91%E4%B9%B0%E7%90%83%E4%B8%8B%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源健身动作捕捉仓库，识别用户运动姿态动作
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%90%88%E7%9B%9B%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+森林防火物资储备库建成 应急保障能力增强
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E4%B8%8B%E6%B3%A8%E9%9B%86%E5%9B%A2%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源记忆加密组件，安全保存智能会话信息
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E8%B5%9B%E4%BA%8B%E9%A6%96%E9%A1%B5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+斯里兰卡茶叶生产成本上涨，茶叶出口利润空间被压缩
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%88%B1%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2%E6%A3%8B%E7%89%8C%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+远程支教项目落地山区 共享城市优质师资
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%9D%E5%B7%9E%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多地严查渣土车夜间违规运输，遏制渣土撒漏噪音扰民现象
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%89%8B%E6%9C%BA%E4%B9%B0%E7%90%83app%E7%8E%A9%E6%B3%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源长文本摘要工具优化大文档处理
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BA%E5%87%AF%E6%97%B6%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源离线视频 AI 智能镜头分割剪辑工具登上榜单
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BA%E7%9C%9F%E9%92%B1%E6%8A%80%E5%B7%A7%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+中小学秋季开学报到顺利 迎新活动丰富多彩
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9A%87%E5%86%A0%E6%B2%99%E5%B7%B4%E4%BD%93%E8%82%B2%E6%BB%9A%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+乡村特色采摘园丰收客流创新高
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E4%B9%90%E9%97%A8%E5%B9%B3%E5%8F%B0%E6%98%AF%E4%BB%80%E4%B9%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+大学生创业项目获得扶持资金落地
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E5%A4%96%E5%9B%B4ios%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源分布式 AI 训练任务资源抢占动态调度方案开源上线
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bg%E7%94%B5%E5%AD%90%E6%B8%B8%E8%89%BA%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+联合国粮农组织呼吁，保障小农户农产品跨境销售渠道
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%B9%B0%E7%90%83%E6%8A%95%E6%B3%A8%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股旅游业相关上市公司回暖，乡村旅游带动细分板块
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E7%BB%9C%E5%AE%98%E6%96%B9%E4%B9%B0%E7%90%83%E7%BD%91%E5%BC%80%E6%88%B7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 AI 简历生成网页版开源登上榜单
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AD%A3%E8%A7%84%E4%B9%B0%E8%B6%B3%E7%90%83%E7%9A%84%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 Go 语言 API 脚手架集成 AI 接口调试
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bat365%E5%9C%A8%E7%BA%BF%E5%B9%B3%E5%8F%B0%7C%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+高标准农田建设验收收官 粮食产能得到提升
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%94%B3%E5%8D%9A%E4%B9%B0%E7%90%83%E7%BD%91%E5%85%AC%E5%8F%B8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产高端传感器量产项目顺利投产
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%92%9C%E4%BA%A8%E5%A8%B1%E4%B9%90%E5%9C%BA%E9%A6%96%E9%A1%B5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市共享单车电子围栏点位持续新增规范停车秩序
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%A2%A6%E4%B9%8B%E9%83%BD%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源记忆加密组件，安全保存智能会话信息
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E5%AE%B6%E4%B9%90%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+泰国木薯遭遇干旱，木薯干产出与出口预期同步下调
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%90%E6%A9%99%E7%94%B5%E6%8A%95%E6%B8%B8%E6%88%8F%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农资侵权治理服务商，跨境电商加强种子农资侵权治理
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2app%E5%AE%98%E7%BD%91%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股医疗旅游相关企业平稳，功能性农产品带动配套需求
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E5%88%A9%E5%AE%AB%E7%BA%BF%E4%B8%8A%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+科研团队解析古老病毒基因组，为传染病溯源提供全新线索
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%81%E5%A4%A7%E4%BF%A1%E8%AA%89%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 PDF 水印批量添加脚本，为文档加盖水印标识
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E4%BA%BAbg%E7%9C%9F%E4%BA%BAxin%E7%94%B5%E5%AD%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+秋季农作物干旱抗旱浇水工作全面展开保障作物生长
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B0%81%E6%9C%89%E7%9C%9F%E4%BA%BAag%E6%B3%A8%E5%86%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农产主题节日玩具企业迎来旺季，年末订单逐步释放
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E7%9C%9F%E9%92%B1%E4%B9%9D%E4%BA%94%E8%87%B3%E5%B0%8A%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+夏粮收购工作推进，小麦累计收购总量已经超过九千万吨中国经济网...
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%8D%86%E9%97%A8%E6%B8%B8%E6%88%8F%E4%B8%AD%E5%BF%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+GitHub 趋势：本地私有化 AI 项目热度走高
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%B0%E9%87%91%E8%B6%B3%E7%90%83%E6%8E%92%E8%A1%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股跨境支付安全服务商，支付系统互联互通降低风险
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%A6%E6%B8%B8%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多地推进城市公共绿地雨水渗滤改造，提升绿地雨水消纳涵养地下水能力
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A5%A5%E5%8D%9A%E5%A4%87%E7%94%A8%E7%BA%BF%E8%B7%AF%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+科创人才落户补贴快速到账
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%AB%9E%E5%BD%A9%E4%B8%96%E7%95%8C%E6%9D%AF%E6%8A%95%E6%B3%A8%E8%BD%AF%E4%BB%B6%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球教育跨境融资项目推进，帮助欠发达地区改善教育条件
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E6%B8%B8%E6%88%8F%E5%8E%85%E7%BA%BF%E4%B8%8A%E5%A8%B1%E4%B9%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+外贸企业汇率避险工具推广 降低经营风险
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%9D%E5%8D%9A%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9app%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+商圈消费抽奖活动激发市民购物热情
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8AAG%E4%B9%B0%E7%90%83%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+新能源汽车检测线上预约系统优化升级
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股铝制农机关税服务商，铝制品受关税影响调整海外布局
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=BG%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E4%BC%9A%E4%B8%8D%E4%BC%9A%E9%80%A0%E5%81%87%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+小微企业服务专员制度落地一对一帮扶企业发展
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%AB%8B%E5%8D%9A%E4%BD%93%E8%82%B2%E7%BB%BC%E5%90%88app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+印度上调部分粮食出口关税，保障国内粮食市场供应
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%88%A9%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球平台经济监管完善，大型平台企业面临更多合规约束
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%8A%E5%B2%9B%E4%BD%93%E8%82%B2%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源高性能反向代理 AI 流量控制模块开放源码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E5%8D%81%E5%A4%A7%E6%AD%A3%E8%A7%84%E7%BD%91%E8%B5%8C%E6%8E%92%E8%A1%8C%E6%A6%9C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+氢能示范项目开工建设 布局清洁能源产业全新赛道
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E5%A8%B1%E4%B9%90%E6%8C%87%E5%AE%9A%E5%BC%80%E6%88%B7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%9A%E5%8D%9A%E4%BD%93%E8%82%B2%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美国商业地产风险发酵，商业地产债券价格持续下行
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%B0%E7%90%83%E5%90%A7%E7%AB%9E%E7%8C%9C%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产精密仪器实现自主量产交付
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%88%B1%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2%E7%AF%AE%E7%90%83%E7%BD%91%E7%AB%99%E6%98%AF%E5%A4%9A%E5%B0%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+汛期河道清淤工程完工提升行洪能力
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%89%8B%E6%9C%BA%E7%94%B5%E7%8E%A9%E9%97%A8%E6%88%B7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股旅游业相关上市公司回暖，乡村旅游带动细分板块
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=BOB%E4%BD%93%E8%82%B2%E5%9C%A8%E5%93%AA%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+线上助农直播间单日销量再破新高
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%9A%E5%8D%9A%E4%BD%93%E8%82%B2%E6%89%8B%E6%9C%BA%E7%99%BB%E5%85%A5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球数字税落地推进，跨国互联网企业调整区域营收分配
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%94%E8%81%94%E8%B5%9B%E4%BF%A1%E8%AA%89%E4%BD%93%E8%82%B2%E6%8A%BC%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+税收优惠延续政策助力小微企业减负
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=dota2%E5%A4%96%E5%9B%B4%E6%8A%95%E6%B3%A8%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股外债风险预警服务商，帮助低收入国家识别粮食债务
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=manbetx%20%E5%AE%98%E7%BD%91%E6%98%AF%E4%BB%80%E4%B9%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产大飞机新增国内航线开通 覆盖更多城市网点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=6731%E9%A1%B6%E7%BA%A7%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源缓存故障排查工具箱，定位缓存异常根源
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E5%8D%9A%E4%BA%9A%E6%B4%B2%E4%BD%93%E8%82%B2%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+老旧电梯更新补贴政策落地 降低业主更换成本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8A%E4%B9%B0%E7%90%83%E5%90%A7%E6%8E%A8%E8%8D%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+哈萨克斯坦棉花轧花厂升级，提升出口棉花品质水平
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%B0%E7%90%83%E5%90%A7%E8%AF%84%E7%BA%A7%E6%8E%A8%E8%8D%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球税收信息交换网络完善，打击跨境逃避税的相关行为
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BF%A1%E8%AA%89%E4%B9%B0%E7%90%83%E5%90%A7%E6%8E%A8%E8%8D%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股气候融资缺口咨询服务商，呼吁私人资本加大投入
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E7%9C%9F%E9%92%B1%E6%96%B0%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+墨西哥比索表现抗跌，侨汇流入支撑本国经济基本面
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%B0%E5%9C%BA%E4%B9%B0%E7%90%83%E6%8A%BC%E6%B3%A8%E6%8A%80%E5%B7%A7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源一键部署多节点 AI 集群脚本发布上线
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%87%91%E6%B2%99%E5%AE%98%E7%BD%91%E6%AF%94%E5%88%86%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国际中医药文化传播论坛举办，推动中医药文化向海外传播交流推广
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E8%B5%84%E8%AE%AF%E6%8A%BC%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股林业板块震荡，全球碳汇交易带来新的业务增长点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E6%B4%B2%E7%8E%B0%E9%87%91%E4%B9%B0%E7%90%83%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源物联网网关 AI 项目，本地分析传感器采集数据
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AD%A3%E8%A7%84%E8%B5%8C%E7%90%83%E8%BD%AF%E4%BB%B6ios%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 LLM Agent 记忆模块开源对外开放
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B22023%E6%89%8B%E6%9C%BAapp%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+农村快递物流配送路线优化缩短包裹配送到达所需时间
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%9D%E6%B8%B8%E4%BC%9Aag%E7%99%BB%E5%BD%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+自动驾驶开放测试道路扩容 商业化提速
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%96%E5%9B%B4%E7%8E%B0%E9%87%91%E4%B9%B0%E7%90%83%E7%BD%91%E5%85%85%E5%80%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多地严查非法销售窃听窃照器材，打击非法窃听窃照侵犯公民隐私行为
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=B%E4%B8%80%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%E5%85%A5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股中小农企应收账款服务商，供应链票据跨境进行试点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A7%E5%8F%91%E5%9B%BD%E9%99%85%E6%B3%A8%E5%86%8C%E6%89%8B%E6%9C%BA%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+汛期地质隐患点安装实时监测报警器
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E9%92%B1%E8%AE%BA%E5%9D%9B%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+山地光伏电站生态修复完工电站周边植被生态逐步恢复生长
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ufc%E8%B5%9B%E4%BA%8B%E7%AB%9E%E7%8C%9Capp%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 Go 语言微服务健康检查 AI 智能告警更新
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%81%8C%E4%B8%9A%E7%99%BE%E5%AE%B6%E4%B9%90%E9%AB%98%E6%89%8B%E6%80%8E%E4%B9%88%E7%82%BC%E6%88%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+泰国央行维持政策利率，平衡通胀压力与复苏节奏
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9B%9B%E5%A4%A7%E7%BD%91%E7%AB%99%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市智慧停车场车位实时查询小程序上线方便车主快速寻位
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E9%92%B1AG%E4%B9%B0%E7%90%83%E8%BD%AF%E4%BB%B6%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球农业对外投资波动，地缘风险抑制跨国农业投资
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BA%93%E5%8D%9A%E4%BD%93%E8%82%B2app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源物联网设备管理平台更新固件模块
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2%E5%BD%A9%E7%A5%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源智能体权限管控组件，限制 AI 调用外部接口
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%98%E6%96%B9app%E4%B8%8B%E8%BD%BD%E5%AE%89%E8%A3%85%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球 IMF 份额改革谈判推进，调整新兴经济体投票权重
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%94%E8%81%94%E8%B5%9B%E7%9C%9F%E9%92%B1%E5%AF%BC%E8%88%AA%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球市政债风险受到关注，地方财政压力传导至债市
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E6%B4%B2%E7%8E%B0%E9%87%91%E7%BA%BF%E4%B8%8A%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+法治宣传短视频广泛传播 群众法治意识逐步增强
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%87%AF%E5%8F%91%E7%BD%91%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源本地语音合成网页端开放源代码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%B9%B0%E7%90%83%E7%8E%A9%E6%B3%95%E4%BB%A3%E7%90%86%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股麻袋包装纺织企业订单向外转移，贸易格局发生变化
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E6%97%97%E8%88%B0%E5%8E%85%E5%AE%A2%E6%88%B7%E7%AB%AF%E5%AE%89%E5%8D%93%E7%89%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源年度人气投票开启，开发者为心仪仓库投票
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%81%94%E8%B5%9B%E4%B9%B0%E7%90%83%E5%B9%B3%E5%8F%B0%E8%AF%84%E7%BA%A7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+秋季农作物田间管理工作持续推进保障秋粮丰产丰收目标
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%93%E8%83%9C%E5%8D%9A%E4%BD%93%E8%82%B2APP%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源团队管理员面板，管控成员 AI 编码权限
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E7%9C%9F%E4%BA%BA%E7%99%BE%E5%AE%B6%E5%AE%B6%E4%B9%90%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球企业外债到期压力上升，部分企业开展债务置换操作
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=e%E6%98%9F%E4%BD%93%E8%82%B2%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股板块波动交易服务商，衍生品随农业板块波动增加成交
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9%E5%A8%B1%E4%B9%90%E7%BD%91%E5%9D%80%E9%93%BE%E6%8E%A5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股食糖现货紧俏服务商，贸易商争抢现货货源推升报价
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%B8%BF%E8%83%9C%E5%A8%B1%E4%B9%90%E6%98%AF%E7%9C%9F%E7%9A%84%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源企业级 RAG 解决方案开放源代码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2appios%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+泰国木薯淀粉开拓拉美市场，工业原料出口地域多元化
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bg%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E6%98%AF%E7%9C%9F%E7%9A%84%E5%90%97%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源离线大模型负载均衡网关开放源码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%89%8B%E6%9C%BA%E7%9B%98%E5%8F%A3%E6%8E%92%E8%A1%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+斯里兰卡橡胶受病害影响，产量预期再度向下修正
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%B2%E6%9C%8B%E6%89%8B%E6%9C%BA%E8%AF%9D%E8%B4%B9%E5%85%85%E5%80%BC%E4%B8%AD%E5%BF%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美国核桃库存累积，北美坚果出口价格维持偏弱运行
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=2026%E4%B9%B0%E4%B8%96%E7%95%8C%E6%9D%AF%E6%AF%94%E5%88%86%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+布基纳法索不安全局势扩散，棉花芝麻生产遭受冲击
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%88%A918%E6%98%AF%E4%BB%80%E4%B9%88%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市排水泵站汛期开启 24 小时值守全力排涝防范城市内涝
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%BA%9A%E6%B4%B2%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市积水点改造项目完工汛期不再积水内涝
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E5%8D%81%E5%A4%A7%E6%AD%A3%E8%A7%84%E7%BD%91%E8%B5%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 Go 语言高性能 Web 服务器 AI 长连接复用优化更新
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E4%BF%A1%E8%AA%89%E4%B9%B0%E7%90%83%E5%90%A7%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+缅甸芒果出口检疫标准提升，部分鲜果出口被退回
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%8E%E4%BD%93%E4%BC%9A%E4%BD%93%E8%82%B2%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%BF%A1%E8%AA%89%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+莫桑比克腰果出口增长，非洲坚果产业对外输出扩大
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%87%91%E5%B0%8A%E7%8E%B0%E9%87%91%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+亚马逊云业务增速回暖，资金回流抬升美股科技股估值
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E4%BA%BA%E8%AF%95%E7%8E%A9%E5%85%A5%E5%8F%A3%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国内产业工人技能大赛举办，选拔高素质技术技能产业人才
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%88%B1%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2%E5%9B%BD%E9%99%85%E9%93%BE%E6%8E%A5%E6%98%AF%E5%A4%9A%E5%B0%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+中央网信办整治 AI 乱象专项行动第二阶段，处置账号 4.9 万余个
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=2026%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球数字服务贸易壁垒增多，数据本地化要求抬高经营成本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B8%8B%E6%B3%A8%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 React Native 离线 AI 聊天模块开源
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E7%AB%99%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产海上风电项目全容量并网发电输出清洁能源
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%9F%A6%E5%BE%B7%E5%BC%80%E6%88%B7%E7%BD%91%E4%B8%8A%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源电商客户管理系统，搭建轻量化 CRM 项目
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%9E%81%E9%80%9F%E8%B5%9B%E8%BD%A6%E6%9C%80%E4%BF%A1%E8%AA%89%E7%9A%84%E5%B9%B3%E5%8F%B0%E5%93%AA%E9%87%8C%E6%9C%89%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+AI 反诈预警系统进驻校园守护学生
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%B0%E5%9C%BA%E4%B9%B0%E7%90%83%E7%BD%91%E8%B5%84%E8%AE%AF%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股卫星服务输出服务商，军工遥感卫星服务输出农业领域
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%93%AA%E4%B8%AA%E5%A8%B1%E4%B9%90%E5%9C%BA%E6%89%8B%E6%9C%BA%E7%89%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 PDF 文档 AI 表格提取工具开放源码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bwin%E5%94%AF%E4%B8%80%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+白俄罗斯钾肥长协订单占比提升，化肥现货市场流通量收缩
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B6%B3%E7%90%83%E5%A4%96%E5%9B%B4%E6%80%8E%E6%A0%B7%E6%8A%95%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+社区便民自助健康检测小屋开放居民自助测量基础健康指标项目
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%9C%A8%E7%BA%BF%E4%B9%B0%E4%B8%96%E7%95%8C%E6%9D%AF%E6%AF%94%E8%B5%9Bapp%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+埃塞俄比亚牛油果库存下降，非洲鲜果出口报价抬升
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%94%E8%81%94%E8%B5%9B%E7%9C%9F%E9%92%B1%E7%BD%91%E6%8A%95%E7%9B%98%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+减税降费红利直达企业 市场经营负担减轻
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E5%A4%96%E5%9B%B4%E7%9C%9F%E4%BA%BA%E8%B6%B3%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+科普进校园巡回演讲走进多所中小学传播前沿科学知识内容要点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%80%8E%E4%B9%88%E8%BF%9B%E5%85%A5%E5%8D%83%E8%B5%A2%E5%9B%BD%E9%99%85%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 AI 代码批量升级依赖包风险检测插件开放源码
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%90%E7%AB%9Eapp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+生态修复苗木栽种工作顺利完成
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BF%A1%E8%AA%89%E6%9C%80%E5%A5%BD%E7%9A%84%E7%BD%91%E6%8A%95%E5%B9%B3%E5%8F%B0%E6%8E%92%E5%90%8D%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市内河水质提升改造工程完工 河水重现清澈见底
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A8%81%E5%BB%89%E5%B8%8C%E5%B0%94app%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源离线视频 AI 画质增强批量处理 Web 服务登上榜单
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B0%B8%E5%88%A9%E7%9C%9F%E9%92%B1%E4%B8%8B%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股原油成本波动服务商，原油变动传导至全球化肥生产成本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E4%BA%BA%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+社区爱心洗衣站设立 免费为困难老人清洗衣物
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8A%E7%9C%9F%E5%AE%9E%E8%B5%8C%E5%8D%9A%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+社区便民医疗服务站新增夜间接诊服务方便居民下班就医问诊
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=nba%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E7%BD%91%E6%8A%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股贸易融资纾困服务商，供应链金融缓解农业贸易融资难
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%93%B6%E6%B2%B3%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86%E6%B3%A8%E5%86%8C%E5%85%AC%E5%8F%B8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+网络反诈提醒虚假中奖诈骗，陌生中奖信息不要相信切勿缴纳手续费
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=nba%E9%AB%98%E6%B8%85%E8%A7%86%E9%A2%91%E4%B8%8B%E8%BD%BD%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+社区老年智能手机课堂开课 教会老人使用智能设备
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E5%9C%A8%E7%BA%BF%E8%B5%8C%E7%90%83%E7%BD%91%E7%AB%99%E5%A4%A7%E5%85%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球多地发布冰川旅游风险提示，冰川消融增加冰川旅游安全风险点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E4%BB%A3%E7%90%86%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股贸易救济案件咨询服务商，反倾销反补贴案件增多
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E9%A6%96%E9%A1%B5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+乌克兰葵花籽油出口受阻，全球葵花籽油供给缺口扩大
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%91%A1%E4%BA%AC%E5%A8%B1%E6%AD%A3%E7%BD%91%E7%9B%98%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+阿根廷蜂蜜库存累积，南美蜂产品出口价格承压下行
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E5%A4%96%E5%9B%B4%E8%AE%A9%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源内网实时画面 AI 识别监控工具上线
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%B8%8C%E5%B0%94%E9%A1%BF%E6%B8%B8%E6%88%8F%E5%B9%B3%E5%8F%B0%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+智神星一号运载火箭完成首次发射任务，试验取得成功新华网
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B3%A8%E5%86%8C%E9%80%81%E4%B8%80%E5%85%83%E7%BA%A2%E5%8C%85%E7%9A%84%E8%BD%AF%E4%BB%B6%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+绿色算力中心加速落地降低碳排放
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%A2%AB%E4%B8%87%E5%8D%9A%E5%B9%B3%E5%8F%B0%E9%BB%91%E4%BA%86%E6%8F%90%E4%B8%8D%E4%BA%86%E6%AC%BE%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农业休闲装备订单服务商，户外用品出口迎来回暖
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%B0%E5%9C%BAAG%E8%B6%B3%E7%90%83%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市智慧公交站牌上新 实时显示公交车辆到站信息
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%B0%E7%90%83%E7%BD%91%E4%BB%A3%E7%90%86%E7%8E%A9%E6%B3%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源前端组件 AI 实时预览 VSCode 插件热重载新版本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B0%B8%E9%9A%86%E5%9B%BD%E9%99%85%E5%A8%B1%E4%B9%90%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市共享单车停放点位扩容工程完工新增数百个停车车位空间位置
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%87%AF%E5%8F%91%E5%AD%A6%E8%8B%91%E6%98%A5%E6%99%93%E6%80%8E%E4%B9%88%E6%A0%B7%E5%95%8A%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球农业生物制剂贸易增长，生物农药跨境流通扩大
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E5%9C%A8%E7%BA%BF%E4%B9%B0%E7%90%83%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多地推进饮用水源地生态缓冲带建设，阻断污染进入水源地
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E5%AE%B6%E4%B9%90%E7%9A%84%E7%BD%91%E7%AB%99%E6%98%AF%E4%BB%80%E4%B9%88%20%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源边缘 AI 算力调度框架，分配终端算力运行模型
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%87%E5%8D%9A%E9%A6%96%E9%A1%B5%E5%9C%B0%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球跨境小额贸易结算优化，适配小微跨境电商经营的特点
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%81%E5%A4%A7%E9%9D%A0%E8%B0%B1%E5%B9%B3%E5%8F%B0%E7%BD%91%E7%BB%9C%E5%BD%A9%E7%A5%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+AI 校园安全巡查系统守护校园平安
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AD%A3%E8%A7%84ag%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源企业向量检索引擎支持索引后台异步刷新任务
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%9A%E4%B9%90%E9%80%9A_%E6%9C%80%E6%96%B0%E5%8D%9A%E4%B9%90%E9%80%9A%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股稳定币重塑跨境支付服务商，监管落地重塑农产品跨境支付格局
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B0%81%E6%9C%89%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2%E7%9A%84%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产新型远洋冷链集装箱交付，保障远洋跨境生鲜货物运输保鲜品质
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E5%A4%9A%E5%8F%B0%E5%8D%81%E5%A4%A7%E9%9D%A0%E8%B0%B1%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+乡村饮水安全长效管护机制建立
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%93%AD%E9%87%91%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+AI 花卉草木识别仓库爆火，拍照识别各类植物品种
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%90%E9%B1%BC%E4%BD%93%E8%82%B2%E5%B9%B3%E5%8F%B0app%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%9D%E6%B8%B8%E8%B4%A6%E5%8F%B7%E4%B8%AA%E4%BA%BA%E4%B8%AD%E5%BF%83%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+河湖生态缓冲带建设完工拦截污染物净化河水
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BD%93%E8%82%B2%E4%B9%8B%E6%98%9F%E4%BB%8B%E7%BB%8D%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球医药中间体出口贸易活跃，全球药企外包供应链采购
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%90%83%E6%8E%A2%E7%BD%91%E5%8D%B3%E6%97%B6%E6%AF%94%E5%88%86007nba%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E4%B9%B0%E7%90%83%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+菲律宾菠萝出口恢复，台风过后种植产业稳步修复
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B6%B3%E7%90%83%E4%B9%B0%E7%90%83%E5%9C%A8%E5%93%AA%E4%B8%AA%E5%B9%B3%E5%8F%B0%E4%B9%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+绿色出行打卡兑换福利活动开启鼓励市民优先选择公共交通出行方式
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BC%A0%E5%A5%87%E5%9B%BD%E9%99%85%E6%B0%B4%E6%B1%87%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股水产贸易增长服务商，养殖水产品占比持续不断提升
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E9%92%B1%E4%B9%B0%E7%90%83%E7%BD%91%E6%8A%95%E7%8E%A9%E6%B3%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+青年就业见习岗位数量增加 助力应届生平稳过渡就业
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BD%93%E8%82%B2%E4%B9%B0%E7%90%83%E8%BD%AF%E4%BB%B6%E6%8A%95%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+河湖生态补水工作持续开展改善多条缺水河道生态环境
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8E%BB%E5%93%AA%E9%87%8C%E6%8A%95%E6%B3%A8%E4%B8%96%E7%95%8C%E6%9D%AF%E6%AF%94%E8%B5%9B%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农业留学规模调研服务商，跨境教育贸易回暖上行
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=tt%E6%8A%95%E6%B3%A8tt%E6%8A%95%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股健身食品配套服务商，运动器材带动农产健身食品外销
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%87%E8%B5%A2%E4%BD%93%E8%82%B2%E9%A6%96%E9%A1%B5%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农膜成本跟随原油服务商，农用薄膜成本跟随原油周期
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E7%BD%91%E4%B8%8A%E4%B8%8B%E6%B3%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源自动化测试框架新增 AI 用例生成模块
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%81%E5%A4%A7%E5%A4%96%E5%9B%B4%E8%B6%B3%E5%BD%A9%E7%BD%91%E7%AB%99app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+快递绿色包装覆盖率提升 践行低碳发展理念
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%97%A5%E5%8D%9A%E4%BD%93%E8%82%B2%E5%AE%98%E7%BD%91%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+欧盟谷物库存下降，内部采购进口需求持续释放
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%83%BD%E7%94%A8%E4%BB%80%E4%B9%88%E8%BD%AF%E4%BB%B6%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+秋季干旱农田灌溉水源调度方案出台保障抗旱用水供给
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%B9%B0%E7%90%83%E8%B5%84%E8%AE%AF%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+垃圾分类短视频挑战赛开赛鼓励居民拍摄宣传视频
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9A%87%E5%86%A0%E4%BD%93%E8%82%B2%E4%BF%A1%E7%94%A8%E7%BD%91%E6%8A%95%E6%BA%90%E7%A0%81%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多地开展打击成品油走私行动，维护国内成品油市场正常秩序
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E4%BA%91%E4%BD%93%E8%82%B2%E8%AF%95%E7%8E%A9%E7%BD%91%E9%A1%B5%E7%89%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源团队周报汇总脚本，收集成员产出团队周报
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E5%93%AA%E9%87%8C%E6%8A%BC%E6%B3%A8%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+AI 健身动作识别开源框架，摄像头捕捉运动姿态
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E7%9C%9F%E4%BA%BA%E6%B8%B8%E6%88%8F%E5%8E%85%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+我国计划研发更多禁化武履约领域人工智能公共产品
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%97%E7%89%9B%E7%BD%91%E7%AB%99%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+国产新型光谱仪器研制成功，用于环境监测物质成分分析
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BF%A1%E8%AA%89%E6%B0%B8%E5%88%A9%E6%B3%A8%E5%86%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+AI 社区调解助手线上化解邻里纠纷
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=leyucom%E4%B9%90%E9%B1%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源高性能消息队列 AI 死信智能处理模块上线
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%9A%E7%8B%97%E4%B9%B0%E7%90%83%E7%AB%99%E5%85%85%E5%80%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+人社部门发布新业态职业目录，一批新职业正式纳入国家职业分类
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E7%9A%87%E5%86%A0%E4%BD%93%E8%82%B2%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+斯里兰卡茶叶线上直销增长，减少中间贸易商赚取差价
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AD%A3%E7%89%88%E7%9C%9F%E4%BA%BA%E5%B9%B3%E5%8F%B0%E5%85%85%E5%80%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+传统工艺创新大赛圆满落幕 多款创新产品脱颖而出
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%9A%E7%8B%97%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E5%85%AC%E5%8F%B8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+非遗手艺人直播带货专场开播线上售卖非遗文创特色产品
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=twitter%E5%9B%BD%E9%99%85%E4%BB%A3%E7%90%86%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+布基纳法索芝麻库存下降，非洲油料出口报价有所抬升
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E6%9C%80%E6%96%B0%E7%BD%91%E6%8A%95%E4%B9%B0%E7%90%83%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球多地发布海洋酸化监测数据，海洋生态面临酸化带来挑战
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E5%90%89%E5%88%A9%E7%BA%BF%E4%B8%8A%E5%A8%B1%E4%B9%90%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股原油成本分析服务商，原油变动影响全球化肥生产成本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%9D%E5%8D%9A%E4%BD%93%E8%82%B2%E5%BD%A9%E7%A5%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+跨省市研学旅行精品线路正式发布
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BD%91%E4%B8%8A%E6%8A%80%E5%B7%A7%E4%B8%89%E5%85%AC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源密钥轮换提醒功能，通知管理员更新安全凭证
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E9%92%B1%E5%BC%80%E6%88%B7%E9%93%B6%E6%B2%B3%E7%8E%A9%E6%B3%95%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+低收入国家粮食进口支出占外汇比重持续走高，负担加重
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BAag%E4%BA%9A%E6%B4%B2%E7%99%BB%E5%BD%95app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+乡村饮水水质季度抽检结果全部达标
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%9A%E7%8B%97%E5%A4%96%E5%9B%B4%E4%B9%B0%E7%90%83%E5%85%85%E5%80%BC%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源电商客户管理系统，搭建轻量化 CRM 项目
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%87%A4%E5%87%B0%E5%A8%B1%E4%B9%90%E5%AE%89%E5%85%A8%E5%AF%86%E7%A0%81%E6%98%AF%E5%95%A5%E6%84%8F%E6%80%9D%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源跨平台网页 AI 表格增量抓取导出任务队列工具上线
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=mg%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球跨境卫生融资合作，助力发展中国家完善医疗体系建设
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E7%9C%9F%E4%BA%BA%E6%98%AF%E9%AA%97%E5%B1%80%E6%96%B0%E9%97%BB%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+应急救援队伍技能比武开赛 锤炼救援本领
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%81%94%E8%B5%9B%E4%B9%B0%E7%90%83%E5%85%85%E5%80%BC%E6%8E%92%E5%90%8D%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+气象初霜预报发布指导高海拔地区农作物防冻保护工作
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%9F%8F%E6%9E%97%E5%A8%B1%E4%B9%90%E6%89%8B%E6%9C%BA%E7%99%BB%E5%BD%95app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球碳排放衍生品市场扩容，碳期货期权交易规模持续走高
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AC%A7%E5%AE%9D%E4%BD%93%E8%82%B2%E5%BD%A9%E7%A5%A8%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农产品礼盒箱包企业韧性较强，节日礼品需求支撑业绩
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E5%B8%9D%E8%B1%AA%E5%A8%B1%E9%82%80%E8%AF%B7%E7%A0%81%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股涉农软件订阅服务商，远程办公带动软件跨境付费
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%97%A5%E5%8D%9A%E6%9C%80%E6%96%B0%E5%AE%98%E7%BD%91%E5%9B%BE%E7%89%87%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+加拿大扁豆豌豆丰产，小杂粮国际贸易货源充足
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%96%E7%95%8C%E6%9D%AF%E8%B5%8C%E7%90%83%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源供应链月报出炉，公示本月拦截攻击数量
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%87%91%E6%8A%95%E7%BD%91%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源语音转文字仓库，音频批量生成文稿字幕
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BA%E4%B9%B0%E7%90%83%E7%BD%91%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 LLM Agent 记忆模块开源对外开放
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%BE%99%E4%BA%A8%E5%A8%B1%E4%B9%90%E5%9C%BA%E9%80%81%E4%BD%93%E9%AA%8C%E9%87%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+肯尼亚咖啡采收结束，东非咖啡出口总量小幅回落
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%96%E5%9B%B4%E8%B6%B3%E7%90%83%E4%B8%8B%E6%B3%A8%E8%B5%94%E7%8E%87%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源批量视频 AI 转漫画工具登上 GitHub 热榜
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%87%E5%8D%9Aag%E7%9C%9F%E4%BA%BA%E8%A7%86%E9%A2%91%E5%A4%9A%E5%B0%91%E5%88%86%E8%BE%A8%E7%8E%87%E7%9A%84%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球化肥出口国争夺市场份额，价格战挤压化肥企业利润
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%87%91%E5%8D%9A%E4%BD%93%E8%82%B2%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农业碳中和进度咨询服务商，各国气候政策执行分化
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=im%E4%BD%93%E8%82%B2%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+全球小盘股估值承压，流动性收紧压制小盘行情表现
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%A3%9E%E7%A6%BD%E6%B8%B8%E6%88%8F%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股投资协定更新服务商，投资协定兼顾保护与监管空间
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bbin%E8%80%81%E8%99%8E%E6%9C%BA%E5%A6%82%E4%BD%95%E4%BD%9C%E5%BC%8A%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+企业技术创新成果发布会举行发布多款自研新产品
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=bsport%E4%BD%93%E8%82%B2%E5%9C%A8%E7%BA%BF%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股健身食品配套贸易服务商，运动器材带动农产健身食品外销
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%81%E5%A4%A7%E9%9D%A0%E8%B0%B1%E5%A4%96%E5%9B%B4APP%E5%B9%B3%E5%8F%B0%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+科研团队开发新型空气净化材料，高效去除室内空气各类污染物
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%B8%81%E6%B8%B8AG%E6%97%97%E8%88%B0%E5%8E%85%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市骑行绿道配套驿站建成休息补给更加方便
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B9%B0%E7%90%83%E5%A4%96%E5%9B%B4app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源 Go 语言 CLI 脚手架 AI 项目模板市场开源
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E5%85%83%E4%BD%93%E8%82%B2%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源高性能时序数据库 AI 趋势预测模块更新版本
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%9C%9F%E4%BA%BA%E6%96%97%E5%9C%B0%E4%B8%BB%E5%AE%98%E7%BD%91%E5%85%8D%E8%B4%B9%E7%89%88%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+工业机器人装机量持续攀升 制造业智能化转型提速
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=ag%E4%BA%9A%E5%A8%B1%E9%9B%86%E5%9B%A2%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股贸易争端审理周期漫长服务商，农业贸易争端审理周期普遍漫长
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%98%89%E5%8D%9A%E5%9B%BD%E9%99%85%E5%A8%B1%E4%B9%90%E5%A4%87%E7%94%A8%E5%9D%80%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+开源线下技术展区预约开启，参观前沿开源成果
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%88%B1%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+社区微循环巴士开通解决居民最后一公里出行难题
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%B8%87%E8%B1%AA%E4%BD%93%E8%82%B2app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+灵活就业公积金缴存试点城市扩容
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%AD%A3%E8%A7%84%E4%B9%B0%E7%90%83%E7%BD%91%E7%AB%99app%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+美股农产品加工机械企业就近建厂，规避海外贸易壁垒
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%88%B1%E6%B8%B8%E6%88%8F%E4%BD%93%E8%82%B2%E5%AE%98%E6%96%B9%E5%85%A5%E5%8F%A3%E4%B8%8B%E8%BD%BD%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+民生实事进度线上查询通道开放群众实时监督
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%BF%E4%B8%8A%E4%B9%B0%E4%B8%96%E7%95%8C%E6%9D%AF%E6%B3%A2%E8%83%86%E5%85%A5%E5%8F%A3%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+城市停车智能缴费系统上线 车主缴费操作更加便捷
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B5%8C%E4%B8%96%E7%95%8C%E6%9D%AF%E6%B3%A2%E8%83%86%E5%AE%98%E7%BD%91%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+欧盟农食产品进口来源多元化，降低单一国家依赖程度Agricultur...
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%BE%B3%E9%97%A8%E8%8A%B1%E7%89%8C%E6%B3%A8%E5%86%8C%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
+
+多条公交线路优化调整 覆盖新建居民片区
+
+| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E4%B9%B0%E7%90%83%E8%B5%84%E8%AE%AF%E6%8E%92%E5%90%8D%E3%80%90%2B%E8%94%BB%20281968%20%E3%80%91
